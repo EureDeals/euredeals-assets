@@ -1,0 +1,1 @@
+# euredeals-assets
